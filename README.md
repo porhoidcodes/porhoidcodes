@@ -8,7 +8,7 @@
 
 🌐 I'm looking to collaborate on exciting AI/ML projects and Python development initiatives that can make a real impact.
 
-💻 You can reach me at parth.johri.16@gmail.com or connect with me on LinkedIn.
+💻 You can reach me at porhoid.codes@gmail.com or connect with me on LinkedIn.
 
 😄 Pronouns: He/Him
 
