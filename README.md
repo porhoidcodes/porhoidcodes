@@ -12,4 +12,4 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I'm a filmmaker at heart, combining my love for technology and creativity!- 👋 Hi, I’m @porhoidcodes
+⚡ Fun fact: I'm a filmmaker at heart, combining my love for technology and creativity!
